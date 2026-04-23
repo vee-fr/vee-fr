@@ -1,7 +1,8 @@
+
 ![](https://komarev.com/ghpvc/?username=veefr&color=949C69&style=for-the-badge&label=Vee+nation)
   <p align="center">
 <p align="center">
-  <img src="https://media.discordapp.net/attachments/1406866529869627485/1491805805601882193/Untitled20_20260409055255.png?ex=69d9b0ac&is=69d85f2c&hm=f44ff9a7126ceb03f40267012239002761399e5a0238b2278fccaf60e2a1057f&=&format=webp&quality=lossless&width=800&height=800">
+  <img src="https://github.com/user-attachments/assets/ecd90ddb-cc09-4de4-a4a1-45b06cb2d3aa">
 
 </p>
 <p align="center"> $${\color{#949C69} Killer \space /Kitty \space / Angel }$$
