@@ -7,7 +7,7 @@
 </p>
 <p align="center"> $${\color{#948468} Killer \space /Kitty \space / Angel }$$
 <p align="center">$${\color{#472825} he\space /her .\space 17 }$$
-<p align="center"> $${\color{#412020}Taken \space by \space <@RottingEcho\space3 }$$
+<p align="center"> $${\color{#847355}Taken \space by \space <@RottingEcho\space3 }$$
 <p align="center"> <a href="https://lovebitez.atabook.org/">Ata . <a href="https://rentry.co/smthnew">Rentry </a> </p>
 
-<p align="center"> $${\color{#887759} Sign \space my \space ata \space pls! }$$
+<p align="center"> $${\color{#40211F} Sign \space my \space ata \space pls! }$$
