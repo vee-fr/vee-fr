@@ -2,7 +2,7 @@
 ![](https://komarev.com/ghpvc/?username=veefr&color=C4B9A3&style=for-the-badge&label=Vee+nation)
   <p align="center">
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/ecd90ddb-cc09-4de4-a4a1-45b06cb2d3aa">
+  <img src="https://github.com/user-attachments/assets/150b5d26-30e7-445d-8840-91a964aa5304">
 
 </p>
 <p align="center"> $${\color{#948468} Killer \space /Kitty \space / Angel }$$
