@@ -1,5 +1,5 @@
 
-![](https://komarev.com/ghpvc/?username=veefr&color=C4B9A3&style=for-the-badge&label=Vee+nation)
+![views](https://komarev.com/ghpvc/?username=vee-fr&label=v+mail&color=7a0150&style=plastic)
 
   <p align="center">
 <p align="center">
