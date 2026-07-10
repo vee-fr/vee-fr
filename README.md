@@ -1,5 +1,5 @@
 
-![views](https://komarev.com/ghpvc/?username=vee-fr&label=v+mail&color=7a0150&style=plastic)
+![views](https://komarev.com/ghpvc/?username=vee-fr&label=Vmail&color=7a0150&style=plastic)
 
   <p align="center">
 <p align="center">
